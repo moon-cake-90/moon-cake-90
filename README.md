@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @moon-cake-90
-- 👀 I’m interested in ... codimg
+- 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... coding
 - 💞️ I’m looking to collaborate on ... coding
 - 📫 How to reach me ... rahimanaoshad@gmail.com
